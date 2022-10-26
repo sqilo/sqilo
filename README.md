@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @sqilo
 - 👀 I’m interested in clowns
 - 🌱 I’m currently doing stuff
-- 💞️ I’m looking to be a clowm
+- 💞️ I’m looking to be a clown
 - 📫 How to reach me: don't
 
 
